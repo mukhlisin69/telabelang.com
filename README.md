@@ -1,2 +1,0 @@
-# telabelang.com
-telabelang.com
